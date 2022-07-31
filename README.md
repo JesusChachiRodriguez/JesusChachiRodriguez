@@ -1,6 +1,4 @@
-<h4 align="center">
-Saludos, soy Jesus Chachi Rodriguez.
-</h4>    
+<h4 align="center"> Saludos, soy Jesús Chachi Rodríguez. </h4>    
 
 <div align="left">
 ⢲⠶⠶⠶⠶⠶⠶⠶⠶⠶⠶⠶⠶⠶⠶⡆⠀⠀ 🌱 Formación en ciencias ambientales en la UCSUR, Perú. <br>
