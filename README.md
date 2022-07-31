@@ -17,5 +17,5 @@ Saludos, soy Jesus Chachi Rodriguez.
 📫Buscame en:<br>
 
 <p>
-  <a href="www.linkedin.com/in/jesusr-cr" rel="nofollow noreferrer">
+  <a href="https://www.linkedin.com/in/jesusr-cr" rel="nofollow noreferrer">
     <img src="https://i.stack.imgur.com/gVE0j.png" alt="linkedin"> LinkedIn
