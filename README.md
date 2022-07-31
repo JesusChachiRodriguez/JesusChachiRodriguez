@@ -6,7 +6,7 @@
 ⠀⠸⡆⠹⣿⣿⣿⣿⣧⠘⣿⣿⣿⣿⣿⡄⢷⠀ ⠀⠀⚡ Amante de la investigación, innovación, estadística, big data y sostenibilidad.<br>
 ⠀⠀⢻⡄⠛⠛⠛⠛⠛⠂⠘⠛⠛⠛⠛⠃⠘⣧⠀ ⠀⠀👥 Trabajando en un proyecto de Hidroponía con Energías Renovables.<br>
 ⠀⠀⠀⢷⡀⢿⣿⣿⣿⣿⡄⢻⣿⣿⣿⣿⣧⠸⣆⠀ ⠀⠀🤔 En búsqueda de un match entre las 2 ciencias.<br>
-⠀⠀⠀⠈⢧⠈⣿⣿⣿⣿⣿⡄⢻⣿⣿⣿⣿⡆⠹⡄ ⠀⠀⠀💬 Consultas sobre proyectos o ideas de innovación, aquí.<br>  
+⠀⠀⠀⠈⢧⠈⣿⣿⣿⣿⣿⡄⢻⣿⣿⣿⣿⡆⠹⡄ ⠀⠀⠀💬 Disponible para consultas sobre proyectos o ideas de innovación.<br>  
 ⠀⠀⠀⠀⠘⣧⣈⣉⣉⣉⣉⣁⣈⣉⣉⣉⣉⣉⣀⣻⡀⠀⠀⠀⠀📫 Búscame en:<br>
 ⠀⠀⠀⠀⠀⠉⠉⠉⠉⠉⡉⠉⠉⠉⠉⠉⠉⠉⠉⠉⠁⠀⠀⠀⠀⠀⠀⠀<a href="https://www.linkedin.com/in/jesusr-cr"> <img src="https://i.stack.imgur.com/gVE0j.png"> LinkedIn </a> <br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡇ <br>
